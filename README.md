@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently learning Fullstack and Artifical Intelligence<br>👯 I’m looking to make more projects <br>👨‍💻 All of my details are available at https://www.linkedin.com/in/kushagra-singh-rajput-758518252?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app<br>📫 How to reach me Kushagra041965@gmail.com
+🔭 I’m currently learning Fullstack and Artifical Intelligence<br>👯 I’m looking to make more projects <br>👨‍💻 All of my details are available at https://www.linkedin.com/in/kushagra-singh-rajput-758518252?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app<br>📫 How to reach me ks.rajputyt@gmail.com
 
 
 ## 🌐 Socials:
